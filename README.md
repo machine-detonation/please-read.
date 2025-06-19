@@ -1,0 +1,1 @@
+as of 6/15/25, ive been getting a lot more emotional and i don't feel as safe as i used to. if you aren't a friend of mine i would prefer it if you limited your interaction with me unless if i directly interact with you first.
